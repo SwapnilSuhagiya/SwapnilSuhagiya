@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @SwapnilSuhagiya
+- 👋 Hi, I’m @SwapnilkumarSuhagiya
 - 📫 How to reach me swapnilsuhagiya2001@gmail.com
 - ⚡ Fun fact: 👨‍💻 Writing code that future me will (hopefully) understand
 
